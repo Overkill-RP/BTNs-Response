@@ -40,6 +40,7 @@ It has been falsely stated that my mortgage was paid on my behalf. For clarity:
 - Any communication shared with the community has been done with transparency and proof
 - I have no interest in drama—only accountability and honesty
 - My intent to prove that the person responsible for the downfall of Overkill RP, was not me, but you!
+- For clarity, I didn't take anything from Overkill RP, we are building from scratch with a community that we actually care about!
 
 ## Final Thoughts
 
