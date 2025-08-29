@@ -57,3 +57,5 @@ I wish you growth and reflection moving forward.
 ---
 
 [Kevin aka BTNGaming]  
+
+Join the new discord server if you want to help support a PROPERLY designed and built server: https://discord.gg/jvhpnAVRsh
